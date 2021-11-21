@@ -1,3 +1,2 @@
-•  Hi, I’m @msxrv•  I’m interested in Retro ProgrammingPruebas
+Hi, I’m @msxrv and I’m interested in Retro Programming
 Can you see this?
-And now?
